@@ -1,1 +1,0 @@
-# TE_Pearson_Storemanagement
